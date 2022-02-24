@@ -1,1 +1,1 @@
-decicao
+decidir
